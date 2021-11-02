@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @jcrabb8
+- 👀 I’m interested in making things with nice people
+- 🌱 I’m currently learning how to make a card game
+- 💞️ I’m looking to collaborate on that card game
+- 📫 How to reach me: twitter.com/jessicaanncrabb
